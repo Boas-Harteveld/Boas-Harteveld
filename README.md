@@ -1,11 +1,2 @@
-- 👋 Hi, I’m @Boas-Harteveld
-- 👀 I’m interested in FiveM hacking scripts
-- 🌱 I’m currently learning FiveM hacker 
-- 💞️ I’m looking to collaborate on Hacking
-- 📫 How to reach me Hack me
-- I like NSFW Reddit and NSFW Anime
-- Im Single
-- Bi
-- They/Them
-- I m not a kiddie hacker, watch out
-- Dont mess with me.
+Im Boas creator and hacker of BuBuntu Operating Software
+I hack your mom 😎
